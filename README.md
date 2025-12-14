@@ -6,4 +6,3 @@ Pfp art by Lemoocado.
 
 ----- . TOP 5 VIDEOS! . -----
 
-https://static.wikitide.net/vyletponywiki/0/08/Love%26PonystepFull.png
