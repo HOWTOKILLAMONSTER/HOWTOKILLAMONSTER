@@ -16,7 +16,7 @@ Basic dni and I would rather not interact with 18+ people. Just dont be weird an
 
 Also some things I like in no specific order:
 
-Vylet Pony (can you tell), Phighting, Hello John Doe, Regretevator, vocaloid & synthv, Deltarune, undertale, murder drones, Osc in general, bad things, honkai star rail, die of death, cookierun, tadc, knights of guinevere, mlp, umamusume, no straight roads, something evil will happen, tally hall, miracle musical, lemon demon, ultrakill, persona, let him go, alien stage, orison, idkhbtfm, yonkagor, kennyoung, ivycomb, femtanyl, hilda, d4dj, the music freaks, fpe, sonic, billie bust up, scrathing melodii, noobsquad/soybean, forsaken (i hate the devs and most part of the community but i played it since the very start and its kinda hard to just distance myself at this point :( ) And One, Mystery Skulls (both the artist and series), Gorillaz.
+Vylet Pony (can you tell), Phighting, Hello John Doe, Regretevator, vocaloid & synthv, Deltarune, undertale, murder drones, Osc in general, bad things, honkai star rail, die of death, cookierun, tadc, knights of guinevere, mlp, umamusume, no straight roads, something evil will happen, tally hall, miracle musical, lemon demon, ultrakill, persona, let him go, alien stage, orison, idkhbtfm, yonkagor, kennyoung, ivycomb, femtanyl, hilda, d4dj, the music freaks, fpe, sonic, billie bust up, scrathing melodii, noobsquad/soybean, forsaken (i hate the devs and most part of the community but i played it since the very start and its kinda hard to just distance myself at this point :( ) And One, Mystery Skulls (both the artist and series), Gorillaz, Atsuover
  
 i like more things but thats most of them.
 guess thats it for now byebye
