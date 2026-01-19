@@ -12,7 +12,7 @@ Pfp art by Lemoocado & art bellow by Vemrill & AstroEden
 
 I dont mind c*h at all its perfectly okay by me
 
-Basic dni and I would rather not interact with 18+ people. Just dont be weird and use your brain its not that hard.
+Lowkey just basic dni and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or something similar its alr.
 
 Also some things I like in no specific order:
 
