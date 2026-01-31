@@ -1,7 +1,7 @@
 ----- . ♡ . -----
 
-"In a house of mirrors
-Could you forget your face?"
+"In a house of mirrors,
+could you forget your face?"
 
 All art here is by larvaecandy
 
