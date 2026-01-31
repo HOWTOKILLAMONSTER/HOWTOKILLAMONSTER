@@ -1,14 +1,15 @@
 ----- . ♡ . -----
 
-"All of this is the game. It's all about the game. The game is all about the players. To play, you have to remember yourself."
+"In a house of mirrors
+Could you forget your face?"
 
-Pfp art by Lemoocado & art bellow by Vemrill & AstroEden
+All art here is by larvaecandy
 
------ . TOP 5 VIDEOS! . -----
+----- . ♡ . -----
 
-<img width="4690" height="2637" alt="Love PonystepFull(1)" src="https://github.com/user-attachments/assets/4dd9a5f9-00b7-4692-ab68-93dbbba5b7ac" />
+<img width="1920" height="960" alt="Paintbucket_ALT_FULL" src="https://github.com/user-attachments/assets/74a4fb72-5560-4ca7-8cec-dff1edf2db0e" />
 
------ . FALLING IN LOVE WITH A CORPORATE ILLUSTRATION . -----
+----- . ♡ . -----
 
 I dont mind c*h at all its perfectly okay by me
 
@@ -23,4 +24,5 @@ guess thats it for now byebye
 
 ----- . ♡ . -----
 
-<img width="1500" height="844" alt="CreatureCityFull" src="https://github.com/user-attachments/assets/239394b6-4a3b-4d88-b9d5-08c4392931d8" />
+<img width="1920" height="960" alt="I_was_the_Loner_of_Paradise_Valley_FULL" src="https://github.com/user-attachments/assets/179347db-842e-47b5-90f1-18a2f57f3e47" />
+
