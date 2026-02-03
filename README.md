@@ -11,7 +11,7 @@ All art here is by larvaecandy
 
 ----- . ♡ . -----
 
-I dont mind c*h at all its perfectly okay by me
+I dont mind c*h at all its perfectly okay by me. I mostly dont check public chat so whispering to me is easier.
 
 Lowkey just basic dni and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or something similar its alr.
 
