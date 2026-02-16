@@ -2,12 +2,10 @@
 
 " LAY BACK AND DIVE "
 
-All art here is by astroeden. THE GOAT I SWEAR
-
+Art by astroeden. 
 ----- . ♡ . -----
 
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/79720340-4760-4d17-b3cb-026d3bdd8874" />
-
 
 ----- . ♡ . -----
 
@@ -17,6 +15,9 @@ Lowkey just basic dni and do not start a full conversation/try to be friends wit
 
 Im in a lot of fandoms, but the ones im more interested right now are phighting and vylet pony.
 
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/420234d0-0fb9-49dd-9443-d2eebad92331" />
+
 ----- . ♡ . -----
 
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/420234d0-0fb9-49dd-9443-d2eebad92331" />
+<img width="120" height="110" alt="image" src="https://github.com/user-attachments/assets/6f7edc8b-a41d-475a-9e8e-8be6064f917d" />
+Special place for the goat potion quasar for only apperaing 2 times in the whole ass story 💔 (by nerkmidz.)
