@@ -1,3 +1,7 @@
+<img width="1600" height="190" alt="image" src="https://github.com/user-attachments/assets/92f52dc8-faab-40b2-9c88-69cfb790e5a1" />
+
+
+
 ----- . ♡ . -----
 
 " LAY BACK AND DIVE "
@@ -22,3 +26,7 @@ Im in a lot of fandoms, but the ones im more interested right now are phighting 
 
 <img width="120" height="110" alt="image" src="https://github.com/user-attachments/assets/6f7edc8b-a41d-475a-9e8e-8be6064f917d" />
 Special place for the goat potion quasar for only apperaing 2 times in the whole ass story 💔 (by nerkmidz.)
+
+
+
+<img width="1600" height="190" alt="image" src="https://github.com/user-attachments/assets/baddf307-a881-4154-a3a3-e64da5e3fcde" />
