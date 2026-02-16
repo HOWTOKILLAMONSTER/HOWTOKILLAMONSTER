@@ -1,13 +1,13 @@
 ----- . ♡ . -----
 
-"In a house of mirrors,
-could you forget your face?"
+" LAY BACK AND DIVE "
 
-All art here is by larvaecandy
+All art here is by astroeden. THE GOAT I SWEAR
 
 ----- . ♡ . -----
 
-<img width="1920" height="960" alt="Paintbucket_ALT_FULL" src="https://github.com/user-attachments/assets/74a4fb72-5560-4ca7-8cec-dff1edf2db0e" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/79720340-4760-4d17-b3cb-026d3bdd8874" />
+
 
 ----- . ♡ . -----
 
@@ -17,9 +17,6 @@ Lowkey just basic dni and do not start a full conversation/try to be friends wit
 
 Im in a lot of fandoms, but the ones im more interested right now are phighting and vylet pony.
 
-i like more things but thats most of them.
-guess thats it for now byebye
-
 ----- . ♡ . -----
 
-<img width="1920" height="960" alt="I_was_the_Loner_of_Paradise_Valley_FULL" src="https://github.com/user-attachments/assets/179347db-842e-47b5-90f1-18a2f57f3e47" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/420234d0-0fb9-49dd-9443-d2eebad92331" />
