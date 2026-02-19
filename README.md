@@ -4,7 +4,7 @@
 
 ----- . ♡ . -----
 
-" LAY BACK AND DIVE "
+" Im burning in your mad iq! "
 
 Art by astroeden. 
 
