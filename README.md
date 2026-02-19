@@ -28,5 +28,9 @@ Im in a lot of fandoms, but the ones im more interested right now are phighting 
 Special place for the goat potion quasar for only apperaing 2 times in the whole ass story 💔 (by nerkmidz.)
 
 
+VID SPHERE JUMPSCARE!!!!1!!!!1
+
+<img width="220" height="220" alt="image" src="https://github.com/user-attachments/assets/459ec0a7-70f7-4519-9107-8f8a2998abc4" />
+
 
 <img width="1600" height="190" alt="image" src="https://github.com/user-attachments/assets/baddf307-a881-4154-a3a3-e64da5e3fcde" />
