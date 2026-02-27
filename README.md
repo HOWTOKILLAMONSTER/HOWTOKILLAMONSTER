@@ -4,7 +4,7 @@
 
 ----- . ♡ . -----
 
-" Im burning in your mad iq! "
+" Street rat gonna get you! "
 
 Art by astroeden. 
 
