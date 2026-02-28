@@ -4,7 +4,10 @@
 
 ----- . ♡ . -----
 
-" Street rat gonna get you! "
+❝ An eye for an eye is the price
+As iron comes tender in fire
+Submerging the sun in our plight
+Still stitching this skin under wire. ❞
 
 Art by astroeden. 
 
