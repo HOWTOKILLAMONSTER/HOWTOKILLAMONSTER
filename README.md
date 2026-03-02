@@ -9,7 +9,7 @@ As iron comes tender in fire
 Submerging the sun in our plight
 Still stitching this skin under wire. ❞
 
-Art by astroeden. 
+Art by NekoSnicker
 
 ----- . ♡ . -----
 
@@ -20,7 +20,9 @@ Art by astroeden.
 
 ----- . ♡ . -----
 
-I dont mind c*h at all its perfectly okay by me (cud pile is ok too). I mostly dont check public chat so whispering to me is easier.
+I dont mind c*h at all its perfectly okay by me (cud pile is ok too). 
+
+I mostly dont check public chat so whispering to me is easier. Also sometimes im pretty bad at understanding intonation/ meaning in text messages so tone tags are apreciated. Expect grammar mistakes since english is my second language so i may mess up things 😓
 
 Lowkey just basic dni and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or something similar its alr.
 
