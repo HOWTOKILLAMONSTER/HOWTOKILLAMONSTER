@@ -34,4 +34,6 @@ I could try to make this look better,but ofc I wont because im a lazy ass
 byeee dont go bald pls
 
 
+<img width="112" height="112" alt="image" src="https://github.com/user-attachments/assets/e4cd842a-21f6-497c-9e90-54f106f74c66" />
+
 <img width="1271" height="83" alt="IMG-7418" src="https://github.com/user-attachments/assets/b576b495-b3d2-449c-9c2e-543ae063c3de" />
