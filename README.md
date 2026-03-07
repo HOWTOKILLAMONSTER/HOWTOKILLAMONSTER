@@ -4,10 +4,9 @@
 
 
 
-❝ An eye for an eye is the price.
-As iron comes tender in fire.
-Submerging the sun in our plight.
-Still stitching this skin under wire. ❞
+❝ See the world from where I stand.
+Me among the mighty,
+you caged at my command. ❞
 
 
 
