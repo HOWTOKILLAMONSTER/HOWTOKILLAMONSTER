@@ -4,9 +4,8 @@
 
 
 
-❝ See the world from where I stand.
-Me among the mighty,
-you caged at my command. ❞
+❝ Baby, punk is the girl who remembers to bleed.
+When you're dancing with yourself in the face of greed! ❞
 
 
 
