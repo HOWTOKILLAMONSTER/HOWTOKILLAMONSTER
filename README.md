@@ -3,8 +3,6 @@ remaking might look rlly weird
 <img width="1271" height="81" alt="tumblr_be2db850f768c645e5ee8e03f28d4c25_8f08ae36_1280" src="https://github.com/user-attachments/assets/3052c9f5-22c2-4889-9813-4aa47ceaca06" />
 
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
-
 <p align="center">
   <img src="![Yours_Truly,_Kitty_Phantom_Thief!_Preview](https://github.com/user-attachments/assets/2eb582fa-4d6d-4ef7-90a4-374e2e80d042)>
 
@@ -77,10 +75,9 @@ I dont mind c*h or cud piles at all. If anything ill get very happy
 
 <p align="center">
   <img src="![Yours_Truly,_Kitty_Phantom_Thief!_Preview](https://github.com/user-attachments/assets/2eb582fa-4d6d-4ef7-90a4-374e2e80d042)>
-<⠀
+
   
    gimme coins NOWW!!!!!!!!!!!!!!!!!!!!!!!
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 <img width="1271" height="81" alt="tumblr_345bb2d806df5a8b068391e36a7af9ec_0a8cea2a_1280" src="https://github.com/user-attachments/assets/c97aa8bd-1467-4dc6-ab0a-a875adf7b489" />
