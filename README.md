@@ -31,9 +31,6 @@ byeee dont go bald pls
 ⏔⏔⏔ ꒰ ✟ ꒱ ⏔⏔⏔
 
 
-<p align="center">
-  <img src="![Yours_Truly,_Kitty_Phantom_Thief!_Preview](https://github.com/user-attachments/assets/2eb582fa-4d6d-4ef7-90a4-374e2e80d042)>
-
 ![Yours_Truly,_Kitty_Phantom_Thief!_Preview](https://github.com/user-attachments/assets/d288fabe-26eb-4e5a-b2a2-cca36fc1ca6a)
 
 
