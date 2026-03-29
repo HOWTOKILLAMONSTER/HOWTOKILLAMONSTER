@@ -23,7 +23,7 @@ Lowkey just basic dni and do not start a full conversation/try to be friends wit
 
 Im in a lot of fandoms, but the ones im more interested right now are Phighting, Vylet Pony, Umamusume & Honkai Star rail (dni if you are THAT type of fan you guys kinda freak me out)
 
-I know NOTHING about coding so I just messed up with things until they looked good enough 👀
+I know NOTHING about coding so I just messed up with things until they looked good enough 💔
 
 byeee dont go bald pls
 
