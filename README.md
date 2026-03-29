@@ -1,9 +1,6 @@
+big wip
 <img width="1271" height="81" alt="tumblr_be2db850f768c645e5ee8e03f28d4c25_8f08ae36_1280" src="https://github.com/user-attachments/assets/3052c9f5-22c2-4889-9813-4aa47ceaca06" />
-this shit is glitching i think
 
-
-<p align="center">
-  <img src="![Yours_Truly,_Kitty_Phantom_Thief!_Preview](https://github.com/user-attachments/assets/2eb582fa-4d6d-4ef7-90a4-374e2e80d042)>
 
 ❝ my creation, is it real?
 It's my creation, I do not know! ❞
