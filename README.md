@@ -7,7 +7,6 @@
 ❝ my creation, is it real?
 It's my creation, I do not know! ❞
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 <p align="center">
   <img src="![Yours_Truly,_Kitty_Phantom_Thief!_Preview](https://github.com/user-attachments/assets/2eb582fa-4d6d-4ef7-90a4-374e2e80d042)>
@@ -74,7 +73,7 @@ I dont mind c*h or cud piles at all. If anything ill get very happy
 <p align="center">
   <img src="![Yours_Truly,_Kitty_Phantom_Thief!_Preview](https://github.com/user-attachments/assets/2eb582fa-4d6d-4ef7-90a4-374e2e80d042)>
 
-  
+
    gimme coins NOWW!!!!!!!!!!!!!!!!!!!!!!!
 
 
