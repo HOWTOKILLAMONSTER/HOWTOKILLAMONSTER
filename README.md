@@ -1,4 +1,5 @@
 <img width="1271" height="81" alt="tumblr_be2db850f768c645e5ee8e03f28d4c25_8f08ae36_1280" src="https://github.com/user-attachments/assets/3052c9f5-22c2-4889-9813-4aa47ceaca06" />
+this shit is glitching i think
 
 
 <p align="center">
