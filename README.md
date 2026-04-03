@@ -33,8 +33,7 @@ byeee dont go bald pls
 
 ⏔⏔⏔ ꒰ ✦ ꒱ ⏔⏔⏔
 
-❝ Bait and switch
-. One and all, full of shit! ❞
+❝ When every star is gone, and lights turn into red, she cuts herself raw. PLAYING DEAD. ❞
 
 ¿¿¿
 
