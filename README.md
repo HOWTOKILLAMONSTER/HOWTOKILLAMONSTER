@@ -66,8 +66,11 @@ byeee dont go bald pls
 ![blinkiesCafe-Vg](https://github.com/user-attachments/assets/0c987537-6964-4bad-9f61-6a74ecceb48f)
 ![d36](https://github.com/user-attachments/assets/2197802b-8d63-494b-b996-d560236ea1f3)
 ![0047-virgo](https://github.com/user-attachments/assets/c2641235-7b7e-4574-88a1-835dca799cfd)
-
+![blinkiesCafe-iS](https://github.com/user-attachments/assets/d2244469-a51b-490d-b383-b3cb10d05fb2)
 ![blinkiesCafe-kD](https://github.com/user-attachments/assets/72041bee-03f4-4fc2-b6f1-bc24b01d71dc)
 ![blinkiesCafe-Ku](https://github.com/user-attachments/assets/45cfa995-a258-47d5-b5af-c397e8479dc0)
-![blinkiesCafe-iS](https://github.com/user-attachments/assets/d2244469-a51b-490d-b383-b3cb10d05fb2)
+![blinkiesCafe-X7](https://github.com/user-attachments/assets/475969a0-6670-44a6-a471-fe7c14b8e5ee)
+![blinkiesCafe-yQ](https://github.com/user-attachments/assets/0993663f-9f3c-4d07-a365-57972a223b63)
+![blinkiesCafe-8F(1)](https://github.com/user-attachments/assets/89f67572-c958-41a2-9b84-da6a0ea25c69)
+
 
