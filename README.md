@@ -67,4 +67,7 @@ byeee dont go bald pls
 ![d36](https://github.com/user-attachments/assets/2197802b-8d63-494b-b996-d560236ea1f3)
 ![0047-virgo](https://github.com/user-attachments/assets/c2641235-7b7e-4574-88a1-835dca799cfd)
 
+![blinkiesCafe-kD](https://github.com/user-attachments/assets/72041bee-03f4-4fc2-b6f1-bc24b01d71dc)
+![blinkiesCafe-Ku](https://github.com/user-attachments/assets/45cfa995-a258-47d5-b5af-c397e8479dc0)
+![blinkiesCafe-iS](https://github.com/user-attachments/assets/d2244469-a51b-490d-b383-b3cb10d05fb2)
 
