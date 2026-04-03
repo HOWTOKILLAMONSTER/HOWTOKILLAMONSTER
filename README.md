@@ -1,5 +1,4 @@
-<img width="1271" height="81" alt="tumblr_be2db850f768c645e5ee8e03f28d4c25_8f08ae36_1280" src="https://github.com/user-attachments/assets/3052c9f5-22c2-4889-9813-4aa47ceaca06" />
-
+<img width="1271" height="81" alt="tumblr_29372e97fbec6e8199702e05d4075fb4_c638d80a_1280" src="https://github.com/user-attachments/assets/367dfad4-dec1-43c5-a5d4-58f45903b851" />
 
 ¿¿¿
 
@@ -40,4 +39,4 @@ byeee dont go bald pls
 ¿¿¿
 
 
-<img width="1271" height="81" alt="tumblr_345bb2d806df5a8b068391e36a7af9ec_0a8cea2a_1280" src="https://github.com/user-attachments/assets/c97aa8bd-1467-4dc6-ab0a-a875adf7b489" />
+<img width="1271" height="81" alt="tumblr_df88d9cefaab04e5ff5c3e792ec3af1c_8fd4d70c_1280" src="https://github.com/user-attachments/assets/09e05512-0184-467e-90b8-29d22c08f74b" />
