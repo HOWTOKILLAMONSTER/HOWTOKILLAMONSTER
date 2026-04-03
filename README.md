@@ -1,14 +1,15 @@
 <img width="1271" height="81" alt="tumblr_be2db850f768c645e5ee8e03f28d4c25_8f08ae36_1280" src="https://github.com/user-attachments/assets/3052c9f5-22c2-4889-9813-4aa47ceaca06" />
 
 
-❝ And ooh, the magic of mischief.
-Don't knock it till you try it! ❞
+¿¿¿
+
+❝ You're not alone on the phone . I will always keep the answer . It's your time on the line, And now you will be mine. ❞
 
 
 ⏔⏔⏔ ꒰ ✟ ꒱ ⏔⏔⏔
 
 
-![WhatsApp Image 2026-03-29 at 13 27 09](https://github.com/user-attachments/assets/d2d6f058-d7e8-4b21-847f-bdfe4baf0e9c)
+![Evernight Dark March GIF - Evernight Dark march March 7th - GIFleri Keşfedin ve Paylaşın](https://github.com/user-attachments/assets/fa75d84a-a79f-4b66-ae8c-2ddeab88cab1)
 
 
 ⏔⏔⏔ ꒰ ✦ ꒱ ⏔⏔⏔
@@ -22,21 +23,21 @@ Lowkey just basic dni and do not start a full conversation/try to be friends wit
 
 Im in a lot of fandoms, but the ones im more interested right now are Phighting, Vylet Pony, Umamusume & Honkai Star rail (dni if you are THAT type of fan you guys kinda freak me out)
 
-I know NOTHING about coding so I just messed up with things until they looked good enough 💔
-
 byeee dont go bald pls
 
 
 ⏔⏔⏔ ꒰ ✟ ꒱ ⏔⏔⏔
 
 
-![Yours_Truly,_Kitty_Phantom_Thief!_Preview](https://github.com/user-attachments/assets/d288fabe-26eb-4e5a-b2a2-cca36fc1ca6a)
+![Evernight Evernighthsr GIF - Evernight Evernighthsr Hsr - GIF&#39;leri Keşfedin ve Paylaşın](https://github.com/user-attachments/assets/9ae838a0-6b8f-4f77-a110-15a40caacaaa)
 
 
 ⏔⏔⏔ ꒰ ✦ ꒱ ⏔⏔⏔
 
+❝ Bait and switch
+. One and all, full of shit! ❞
 
-gimme coins NOWW!!!!!!!!!!!!!!!!!!!!!!!
+¿¿¿
 
 
 <img width="1271" height="81" alt="tumblr_345bb2d806df5a8b068391e36a7af9ec_0a8cea2a_1280" src="https://github.com/user-attachments/assets/c97aa8bd-1467-4dc6-ab0a-a875adf7b489" />
