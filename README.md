@@ -20,7 +20,7 @@ I mostly dont check public chat so whispering to me is easier. Also sometimes im
 
 Lowkey just basic dni and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or something similar its alr.
 
-Im in a lot of fandoms, but the ones im more interested right now are Phighting, Vylet Pony, Umamusume & Honkai Star rail (dni if you are THAT type of fan you guys kinda freak me out)
+Im in a lot of fandoms, but the ones im more interested right now are Phighting, Umamusume & Honkai Star rail (dni if you are THAT type of fan you guys kinda freak me out)
 
 byeee dont go bald pls
 
