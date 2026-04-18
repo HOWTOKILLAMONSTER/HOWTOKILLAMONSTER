@@ -1,76 +1,133 @@
-<img width="1271" height="81" alt="tumblr_29372e97fbec6e8199702e05d4075fb4_c638d80a_1280" src="https://github.com/user-attachments/assets/367dfad4-dec1-43c5-a5d4-58f45903b851" />
+<img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/2be57929-4d9f-499b-b0e7-670373f5bd62" />
+<img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/6552f738-b1ac-488a-aab5-c3d4ee5f9c7b" />
+<img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/55f0990a-6bf0-4548-9a31-707c7a853c35" />
 
-¿¿¿
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
-❝ You're not alone on the phone . I will always keep the answer . It's your time on the line, And now you will be mine. ❞
+<p align="center">
+  <img width="26" height="21" alt="12941f0d_original" src="https://github.com/user-attachments/assets/312c5d97-5f3b-4dcf-8522-c4daff9d66f0" />
+  <img width="26" height="21" alt="003f4c31_original" src="https://github.com/user-attachments/assets/9a2d00e6-5659-47a7-b9a6-2ffc817abce4" />
+</p>
 
+<p align="center">
+  ❝ Vivid skies may pass me by
+</p>
 
-⏔⏔⏔ ꒰ ✟ ꒱ ⏔⏔⏔
+<p align="center">
+  But even still, I'll stay
+</p>
 
-
-![Evernight Dark March GIF - Evernight Dark march March 7th - GIFleri Keşfedin ve Paylaşın](https://github.com/user-attachments/assets/fa75d84a-a79f-4b66-ae8c-2ddeab88cab1)
-
-
-⏔⏔⏔ ꒰ ✦ ꒱ ⏔⏔⏔
-
-
-I dont mind c*h or cud piles at all. If anything ill get very happy
-
-I mostly dont check public chat so whispering to me is easier. Also sometimes im pretty bad at understanding intonation/ meaning in text messages so tone tags are apreciated. Expect grammar mistakes since english is my second language so i may mess up things 😓
-
-Lowkey just basic dni and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or something similar its alr.
-
-Im in a lot of fandoms, but the ones im more interested right now are Phighting, Umamusume & Honkai Star rail (dni if you are THAT type of fan you guys kinda freak me out)
-
-byeee dont go bald pls
-
-
-⏔⏔⏔ ꒰ ✟ ꒱ ⏔⏔⏔
-
-
-![Evernight Evernighthsr GIF - Evernight Evernighthsr Hsr - GIF&#39;leri Keşfedin ve Paylaşın](https://github.com/user-attachments/assets/9ae838a0-6b8f-4f77-a110-15a40caacaaa)
-
-
-⏔⏔⏔ ꒰ ✦ ꒱ ⏔⏔⏔
-
-❝ When every star is gone, and lights turn into red, she cuts herself raw. PLAYING DEAD. ❞
-
-¿¿¿
-
-
-<img width="1271" height="81" alt="tumblr_df88d9cefaab04e5ff5c3e792ec3af1c_8fd4d70c_1280" src="https://github.com/user-attachments/assets/09e05512-0184-467e-90b8-29d22c08f74b" />
+<p align="center">
+  The weather forecast's calling for another cloudy day. ❞
+</p>
 
 
 
-![h9](https://github.com/user-attachments/assets/54adb487-7c09-45a7-b89d-cd44007b6c5b)
-![h41](https://github.com/user-attachments/assets/3ada1028-a4ae-42b4-9398-ecc93f15b785)
-![h26](https://github.com/user-attachments/assets/0972f6a4-7bc2-445c-87cc-0f294c693584)
-![h34](https://github.com/user-attachments/assets/9314acb2-62c5-43d6-a0c1-6f822e0be195)
-![a33](https://github.com/user-attachments/assets/1a8743d0-9859-4efd-a69c-789b7afacee8)
-![a36](https://github.com/user-attachments/assets/945bc8ca-fe6f-4be7-8e98-61700927c913)
-![a2](https://github.com/user-attachments/assets/bab5abd9-f366-409b-8279-4599d089d15d)
-![d37](https://github.com/user-attachments/assets/64de826a-a1a8-462d-b159-390a8bb15702)
-![dkhxmej-bed8d1c9-bf0c-4fcc-a0a2-fa069d4f85e5](https://github.com/user-attachments/assets/3e6255d0-2ce3-427a-a886-90a5a2b5f6c3)
-![g17](https://github.com/user-attachments/assets/306513df-71e6-4773-8dab-090b217440f1)
-![g6](https://github.com/user-attachments/assets/84a9817c-9f10-4f42-b0e9-a73322ff9c17)
-![g12](https://github.com/user-attachments/assets/3086b158-6262-43a7-913a-d03bf8c76ca2)
-![z12](https://github.com/user-attachments/assets/b9ca0dcc-801f-4c3a-8471-2f7709b96ac1)
-![z31](https://github.com/user-attachments/assets/c289f883-4063-44bf-b1a1-c868296fd369)
-![z16](https://github.com/user-attachments/assets/6989dcd5-51f1-4b53-87ed-19c3b5f6c58c)
-![z49](https://github.com/user-attachments/assets/4dec0245-1963-4e9b-97de-2bf6b418b071)
-![z1](https://github.com/user-attachments/assets/2d393309-5a72-402b-be50-eea3986cfe61)
-![x45](https://github.com/user-attachments/assets/4c51538e-7552-4011-b3a5-a84555fc19c0)
-![e112](https://github.com/user-attachments/assets/339267c6-696f-4606-9f5d-2c1a15f477cd)
-![e116](https://github.com/user-attachments/assets/516fa81f-1985-4891-82dd-c6779fa4c20c)
-![dhvozoq-29c8bc12-30e1-4948-9e50-64645f08cdb9](https://github.com/user-attachments/assets/1730c7a8-7d74-4d12-b42b-f30f4ecb1748)
-![blinkiesCafe-Vg](https://github.com/user-attachments/assets/0c987537-6964-4bad-9f61-6a74ecceb48f)
-![d36](https://github.com/user-attachments/assets/2197802b-8d63-494b-b996-d560236ea1f3)
-![0047-virgo](https://github.com/user-attachments/assets/c2641235-7b7e-4574-88a1-835dca799cfd)
-![blinkiesCafe-iS](https://github.com/user-attachments/assets/d2244469-a51b-490d-b383-b3cb10d05fb2)
-![blinkiesCafe-kD](https://github.com/user-attachments/assets/72041bee-03f4-4fc2-b6f1-bc24b01d71dc)
-![blinkiesCafe-Ku](https://github.com/user-attachments/assets/45cfa995-a258-47d5-b5af-c397e8479dc0)
-![blinkiesCafe-X7](https://github.com/user-attachments/assets/475969a0-6670-44a6-a471-fe7c14b8e5ee)
-![blinkiesCafe-yQ](https://github.com/user-attachments/assets/0993663f-9f3c-4d07-a365-57972a223b63)
-![blinkiesCafe-8F(1)](https://github.com/user-attachments/assets/89f67572-c958-41a2-9b84-da6a0ea25c69)
+<p align="center">
+  ⏔⏔⏔ ꒰ <img width="20" height="20" alt="pinkie music note gif" src="https://github.com/user-attachments/assets/049abc2f-5f2f-4547-ba9b-5fbd02f23c47" />
+ ꒱ ⏔⏔⏔
+</p>
 
 
+<p align="center">
+  <img width="400" height="195" alt="aod-angels-of-delusion-gif" src="https://github.com/user-attachments/assets/af3deb84-e047-4dfe-8c46-00c54d605822" />
+</p>
+
+<p align="center">
+  ⏔⏔⏔ ꒰ <img width="20" height="20" alt="cyan gif rotating swirls" src="https://github.com/user-attachments/assets/0101e75e-13ef-46e4-ab22-61288f1b6c4e" />
+ ꒱ ⏔⏔⏔
+</p>
+
+
+
+<p align="center">
+  I dont mind c*h or cud piles at all. If anything ill get very happy!!
+</p>
+
+<p align="center">
+  I mostly dont check public chat so whispering to me is easier. Also sometimes im pretty bad at understanding intonation/ meaning in text messages so tone tags are apreciated. Expect grammar mistakes since english is my second language so i may mess up things 😓
+</p>
+
+<p align="center">
+  Lowkey just basic dni and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or something similar its alr.
+</p>
+
+<p align="center">
+  Im in a lot of fandoms, but the ones im more interested right now are Phighting, Umamusume & Honkai Star rail (dni if you are THAT type of fan you guys kinda freak me out)
+</p>
+
+<p align="center">
+  I know basically nothing about zzz but I do love angels of delusion if you couldnt tell
+</p>
+
+
+<p align="center">
+ weell byeee dont go bald pls have an amazing dayy
+</p>
+  
+
+
+
+<p align="center">
+  ⏔⏔⏔ ꒰ <img width="20" height="20" alt="3d8dfae4" src="https://github.com/user-attachments/assets/e52041f3-521f-485e-9ac7-08c558aa1ead" />
+ ꒱ ⏔⏔⏔
+</p>
+
+<p align="center">
+ <img width="400" height="195" alt="zenless-zone-zero-zzz" src="https://github.com/user-attachments/assets/d61e2787-7d26-41ab-8267-349d788393cd" />
+
+
+
+
+</p>
+
+
+<p align="center">
+⏔⏔⏔ ꒰ <img width="20" height="20" alt="a0054911_original" src="https://github.com/user-attachments/assets/50e98eca-4b7a-4707-8b58-77d486466f56" />
+ ꒱ ⏔⏔⏔
+</p>
+
+<p align="center">
+  ❝ 焦がれ 憧れ 歌うの, Re:dreaming Angel!! ❞
+</p>
+
+
+<p align="center">
+  ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+</p>
+
+
+
+<p align="center">
+  <img width="150" height="20" alt="60eaa0f9" src="https://github.com/user-attachments/assets/09b1945a-8df5-4a52-ae28-f91d3c74173a" />
+</p>
+
+
+<p align="center">
+  <img width="150" height="20" alt="b026f41f" src="https://github.com/user-attachments/assets/f5267b6d-c12f-4ad4-853d-925313a6322d" />
+</p>
+
+
+<p align="center">
+  <img width="150" height="20" alt="angel blue blinkie" src="https://github.com/user-attachments/assets/c7135d3b-ed55-4e7a-bbbe-55edcd1942d1" />
+</p>
+
+<p align="center">
+  <img width="51" height="18" alt="candyyyyyyy" src="https://github.com/user-attachments/assets/519c48ee-c65f-4335-aece-d45c14ec69c6" />
+
+  <img width="78" height="18" alt="a0e16a55_original" src="https://github.com/user-attachments/assets/65c3f4dd-696d-4baa-96c8-ea4a4ea7bef3" />
+<img width="51" height="18" alt="2a082f8e_original" src="https://github.com/user-attachments/assets/e3ae4c0e-ef16-4821-8177-c05a156e021d" />
+<img width="85" height="18" alt="sweetheart button" src="https://github.com/user-attachments/assets/26b45ecf-713b-40ac-894f-8eff1ff3471a" />
+</p>
+
+
+<p align="center">
+  <img width="26" height="21" alt="12941f0d_original" src="https://github.com/user-attachments/assets/312c5d97-5f3b-4dcf-8522-c4daff9d66f0" />
+  <img width="26" height="21" alt="003f4c31_original" src="https://github.com/user-attachments/assets/9a2d00e6-5659-47a7-b9a6-2ffc817abce4" />
+</p>
+
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+ 
+<img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/2be57929-4d9f-499b-b0e7-670373f5bd62" />
+<img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/6552f738-b1ac-488a-aab5-c3d4ee5f9c7b" />
+<img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/55f0990a-6bf0-4548-9a31-707c7a853c35" />
