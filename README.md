@@ -1,9 +1,8 @@
-
+ <p align="center">
   <img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/2be57929-4d9f-499b-b0e7-670373f5bd62" />
-
-
-  <img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/6552f738-b1ac-488a-aab5-c3d4ee5f9c7b" />
-
+<img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/6552f738-b1ac-488a-aab5-c3d4ee5f9c7b" />
+</p>
+  
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 <p align="center">
