@@ -121,7 +121,10 @@
   <img width="26" height="21" alt="003f4c31_original" src="https://github.com/user-attachments/assets/9a2d00e6-5659-47a7-b9a6-2ffc817abce4" />
 </p>
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+<p align="center">
+   🌸
+</p>
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
  <p align="center">
   <img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/2be57929-4d9f-499b-b0e7-670373f5bd62" />
 <img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/6552f738-b1ac-488a-aab5-c3d4ee5f9c7b" />
