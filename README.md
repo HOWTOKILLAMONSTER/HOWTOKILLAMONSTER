@@ -1,4 +1,4 @@
-<p align="center">
+
  <img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/2be57929-4d9f-499b-b0e7-670373f5bd62" />
 <img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/6552f738-b1ac-488a-aab5-c3d4ee5f9c7b" />
 </p>
@@ -32,12 +32,11 @@
 
 
 <p align="center">
-  <img width="400" height="195" alt="aod-angels-of-delusion-gif" src="https://github.com/user-attachments/assets/af3deb84-e047-4dfe-8c46-00c54d605822" />
+  <img width="400" height="195" alt="ellie-will-get-c6-evanescia-elysia-will-get-c6-evanescia" src="https://github.com/user-attachments/assets/6e01b43f-24a7-4559-949d-40f71db8d54e" />
 </p>
 
 <p align="center">
-  ⏔⏔⏔ ꒰ <img width="20" height="20" alt="cyan gif rotating swirls" src="https://github.com/user-attachments/assets/0101e75e-13ef-46e4-ab22-61288f1b6c4e" />
- ꒱ ⏔⏔⏔
+  ⏔⏔⏔ ꒰ <img width="20" height="20" alt="58630012_original" src="https://github.com/user-attachments/assets/cbe02899-e70c-4af5-badf-a31545aa8d20" /> ꒱ ⏔⏔⏔
 </p>
 
 
@@ -59,16 +58,9 @@
 </p>
 
 <p align="center">
-  I know basically nothing about zzz but I do love angels of delusion if you couldnt tell
-</p>
-
-
-<p align="center">
  weell byeee dont go bald pls have an amazing dayy
 </p>
-  
-
-
+ 
 
 <p align="center">
   ⏔⏔⏔ ꒰ <img width="20" height="20" alt="3d8dfae4" src="https://github.com/user-attachments/assets/e52041f3-521f-485e-9ac7-08c558aa1ead" />
@@ -76,16 +68,12 @@
 </p>
 
 <p align="center">
- <img width="400" height="195" alt="zenless-zone-zero-zzz" src="https://github.com/user-attachments/assets/d61e2787-7d26-41ab-8267-349d788393cd" />
-
-
-
-
+  <img width="400" height="195" alt="evanescia-ult-evanescia-animations" src="https://github.com/user-attachments/assets/24e783a5-dc67-4e46-b482-f47efab5508b" />
 </p>
 
 
 <p align="center">
-⏔⏔⏔ ꒰ <img width="20" height="20" alt="a0054911_original" src="https://github.com/user-attachments/assets/50e98eca-4b7a-4707-8b58-77d486466f56" />
+⏔⏔⏔ ꒰ <img width="25" height="21" alt="c99c8545_original" src="https://github.com/user-attachments/assets/d8db3acb-b019-49eb-99a1-5123829fc5ae" />
  ꒱ ⏔⏔⏔
 </p>
 
@@ -95,7 +83,8 @@
 
 
 <p align="center">
-  ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+  ⋆.ೃ࿔<img width="20" height="20" alt="010445d0" src="https://github.com/user-attachments/assets/e69f2e77-0135-460a-bef7-5cf0ef7960ba" />
+*:･
 </p>
 
 
@@ -106,13 +95,18 @@
 
 
 <p align="center">
-  <img width="150" height="20" alt="b026f41f" src="https://github.com/user-attachments/assets/f5267b6d-c12f-4ad4-853d-925313a6322d" />
+  <img width="150" height="20" alt="blinkiesCafe-3k" src="https://github.com/user-attachments/assets/3ba7e53a-ea2d-44c7-864a-5b54501dd442" />
 </p>
 
 
 <p align="center">
-  <img width="150" height="20" alt="angel blue blinkie" src="https://github.com/user-attachments/assets/c7135d3b-ed55-4e7a-bbbe-55edcd1942d1" />
+  <img width="150" height="20" alt="pink blinkieee" src="https://github.com/user-attachments/assets/a9e289fe-d58d-4d63-9eb4-cd6077620d48" />
 </p>
+
+<p align="center">
+  <img width="150" height="20" alt="blinkiesCafe-7z" src="https://github.com/user-attachments/assets/9f62b62f-9377-4f19-82da-c0f575fa76ea" />
+</p>
+
 
 <p align="center">
   <img width="51" height="18" alt="candyyyyyyy" src="https://github.com/user-attachments/assets/519c48ee-c65f-4335-aece-d45c14ec69c6" />
