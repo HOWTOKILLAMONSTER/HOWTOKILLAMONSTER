@@ -1,13 +1,16 @@
  <p align="center">
-  <img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/2be57929-4d9f-499b-b0e7-670373f5bd62" />
-<img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/6552f738-b1ac-488a-aab5-c3d4ee5f9c7b" />
+ <img width="1500" height="474" alt="WhatsApp Image 2026-05-01 at 15 27 59" src="https://github.com/user-attachments/assets/35e98a22-b977-4849-ac23-efb18c675279" />
 </p>
   
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 <p align="center">
-  <img width="26" height="21" alt="12941f0d_original" src="https://github.com/user-attachments/assets/312c5d97-5f3b-4dcf-8522-c4daff9d66f0" />
-  <img width="26" height="21" alt="003f4c31_original" src="https://github.com/user-attachments/assets/9a2d00e6-5659-47a7-b9a6-2ffc817abce4" />
+  🕸
+</p>
+
+<p align="center">
+  <img width="99" height="20" alt="44be52fc_original" src="https://github.com/user-attachments/assets/8a4dc989-86af-4403-a10c-69b8a228e2d0" />
+ .ೀ <img width="20" height="20" alt="70b702f6" src="https://github.com/user-attachments/assets/ecd2761e-18e3-46cc-ab5b-2cf0a1ee6365" /> ‧₊˚𓏵
+
 </p>
 
 <p align="center">
@@ -15,25 +18,20 @@
 </p>
 
 
-
 <p align="center">
-  ⏔⏔⏔ ꒰ <img width="20" height="20" alt="pinkie music note gif" src="https://github.com/user-attachments/assets/049abc2f-5f2f-4547-ba9b-5fbd02f23c47" />
- ꒱ ⏔⏔⏔
-</p>
-
-
-<p align="center">
-  <img width="400" height="195" alt="ellie-will-get-c6-evanescia-elysia-will-get-c6-evanescia" src="https://github.com/user-attachments/assets/6e01b43f-24a7-4559-949d-40f71db8d54e" />
+  <img width="180" height="180" alt="WhatsApp Image 2026-05-01 at 15 29 28" src="https://github.com/user-attachments/assets/27615ca7-d957-403e-9407-960fb6bf0c02" />
 </p>
 
 <p align="center">
-  ⏔⏔⏔ ꒰ <img width="20" height="20" alt="58630012_original" src="https://github.com/user-attachments/assets/cbe02899-e70c-4af5-badf-a31545aa8d20" /> ꒱ ⏔⏔⏔
-</p>
-
-
+  ════════════════════════════════════
+ </p>
 
 <p align="center">
-  I dont mind c*h or cud piles at all. If anything ill get very happy!!
+   ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+</p>
+
+<p align="center">
+Heyy theres a 90% chance that you are here from pony town lol so :
 </p>
 
 <p align="center">
@@ -41,32 +39,32 @@
 </p>
 
 <p align="center">
-  Lowkey just basic dni and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or something similar its alr.
+D͟N͟I͟ : Wierd hoyoverse fans, problematic people or if you support them,  and do not start a full conversation/try to be friends with me if youre 18+. But if it is just c*h or if you just wanna say you like my skin or something similar its alr.
 </p>
 
 <p align="center">
-  Im in a lot of fandoms, but the ones im more interested right now are Phighting, Umamusume & Honkai Star rail (dni if you are THAT type of fan you guys kinda freak me out)
+I͟N͟T͟ : Phighting, Umamusume, Honkai Star rail, Genshin Impact, Block Tales, Cookie Run, Deltarune, Undertale, Hello John Doe, Dandy's world, Searching for a world that doesn't exist.
 </p>
 
 <p align="center">
- weell byeee dont go bald pls have an amazing dayy
-</p>
- 
-
-<p align="center">
-  ⏔⏔⏔ ꒰ <img width="20" height="20" alt="3d8dfae4" src="https://github.com/user-attachments/assets/e52041f3-521f-485e-9ac7-08c558aa1ead" />
- ꒱ ⏔⏔⏔
+B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly stop replying I problaby don't know what to say. I may sound a bit dry sometimes but it's nothing personal I swear, I'm just quite bad at expressing myself. 
 </p>
 
 <p align="center">
-  <img width="400" height="195" alt="evanescia-ult-evanescia-animations" src="https://github.com/user-attachments/assets/24e783a5-dc67-4e46-b482-f47efab5508b" />
-</p>
-
+  
 
 <p align="center">
-⏔⏔⏔ ꒰ <img width="25" height="21" alt="c99c8545_original" src="https://github.com/user-attachments/assets/d8db3acb-b019-49eb-99a1-5123829fc5ae" />
- ꒱ ⏔⏔⏔
+     ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+ </p>
+
+<p align="center">
+════════════════════════════════════
 </p>
+
+<p align="center">
+  <img width="180" height="180" alt="WhatsApp Image 2026-05-01 at 15 29 28" src="https://github.com/user-attachments/assets/27615ca7-d957-403e-9407-960fb6bf0c02" />
+</p>
+
 
 <p align="center">
   ❝ I think they see me as INFAMOUS!! ❞
@@ -74,50 +72,19 @@
 
 
 <p align="center">
-  ⋆.ೃ࿔<img width="20" height="20" alt="010445d0" src="https://github.com/user-attachments/assets/e69f2e77-0135-460a-bef7-5cf0ef7960ba" />
-*:･
+⋆.ೃ࿔<img width="20" height="20" alt="ce9950bc_original" src="https://github.com/user-attachments/assets/5c0e1562-394a-44fd-a122-90e4d497a556" />*:･
+    <img width="99" height="20" alt="44be52fc_original" src="https://github.com/user-attachments/assets/8a4dc989-86af-4403-a10c-69b8a228e2d0" />  
 </p>
+
+
 
 
 
 <p align="center">
-  <img width="150" height="20" alt="60eaa0f9" src="https://github.com/user-attachments/assets/09b1945a-8df5-4a52-ae28-f91d3c74173a" />
+  🦴 
 </p>
 
 
 <p align="center">
-  <img width="150" height="20" alt="blinkiesCafe-3k" src="https://github.com/user-attachments/assets/3ba7e53a-ea2d-44c7-864a-5b54501dd442" />
-</p>
-
-
-<p align="center">
-  <img width="150" height="20" alt="pink blinkieee" src="https://github.com/user-attachments/assets/a9e289fe-d58d-4d63-9eb4-cd6077620d48" />
-</p>
-
-<p align="center">
-  <img width="150" height="20" alt="blinkiesCafe-7z" src="https://github.com/user-attachments/assets/9f62b62f-9377-4f19-82da-c0f575fa76ea" />
-</p>
-
-
-<p align="center">
-  <img width="51" height="18" alt="candyyyyyyy" src="https://github.com/user-attachments/assets/519c48ee-c65f-4335-aece-d45c14ec69c6" />
-
-  <img width="78" height="18" alt="a0e16a55_original" src="https://github.com/user-attachments/assets/65c3f4dd-696d-4baa-96c8-ea4a4ea7bef3" />
-<img width="51" height="18" alt="2a082f8e_original" src="https://github.com/user-attachments/assets/e3ae4c0e-ef16-4821-8177-c05a156e021d" />
-<img width="85" height="18" alt="sweetheart button" src="https://github.com/user-attachments/assets/26b45ecf-713b-40ac-894f-8eff1ff3471a" />
-</p>
-
-
-<p align="center">
-  <img width="26" height="21" alt="12941f0d_original" src="https://github.com/user-attachments/assets/312c5d97-5f3b-4dcf-8522-c4daff9d66f0" />
-  <img width="26" height="21" alt="003f4c31_original" src="https://github.com/user-attachments/assets/9a2d00e6-5659-47a7-b9a6-2ffc817abce4" />
-</p>
-
-<p align="center">
-   🌸
-</p>
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
- <p align="center">
-  <img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/2be57929-4d9f-499b-b0e7-670373f5bd62" />
-<img width="334" height="23" alt="33bb7ff2" src="https://github.com/user-attachments/assets/6552f738-b1ac-488a-aab5-c3d4ee5f9c7b" />
+  <img width="1500" height="474" alt="WhatsApp Image 2026-05-01 at 15 27 58" src="https://github.com/user-attachments/assets/3da4e0bc-ea68-422d-9fdc-0ed3e3ef93d6" />
 </p>
