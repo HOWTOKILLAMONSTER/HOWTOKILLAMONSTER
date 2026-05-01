@@ -11,15 +11,7 @@
 </p>
 
 <p align="center">
-  ❝ Vivid skies may pass me by
-</p>
-
-<p align="center">
-  But even still, I'll stay
-</p>
-
-<p align="center">
-  The weather forecast's calling for another cloudy day. ❞
+  ❝ Who knew it'd feel so good to be misunderstood? ❞
 </p>
 
 
@@ -77,7 +69,7 @@
 </p>
 
 <p align="center">
-  ❝ 焦がれ 憧れ 歌うの, Re:dreaming Angel!! ❞
+  ❝ I think they see me as INFAMOUS!! ❞
 </p>
 
 
