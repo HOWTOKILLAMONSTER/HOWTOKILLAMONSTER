@@ -62,7 +62,7 @@ B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly s
 </p>
 
 <p align="center">
-  <img width="180" height="180" alt="WhatsApp Image 2026-05-01 at 15 29 28" src="https://github.com/user-attachments/assets/27615ca7-d957-403e-9407-960fb6bf0c02" />
+<img width="180" height="180" alt="WhatsApp Image 2026-05-01 at 15 29 27(1)" src="https://github.com/user-attachments/assets/b7e5b986-b7a6-4ff3-bc21-a1fec579ecdc" />
 </p>
 
 
