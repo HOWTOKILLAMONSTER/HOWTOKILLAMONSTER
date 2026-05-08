@@ -9,7 +9,8 @@
 
 <p align="center">
   <img width="99" height="20" alt="44be52fc_original" src="https://github.com/user-attachments/assets/8a4dc989-86af-4403-a10c-69b8a228e2d0" />
- .ೀ <img width="20" height="20" alt="70b702f6" src="https://github.com/user-attachments/assets/ecd2761e-18e3-46cc-ab5b-2cf0a1ee6365" /> ‧₊˚𓏵
+ .ೀ <img width="20" height="20" alt="c8rdnw" src="https://github.com/user-attachments/assets/1a7cadb9-f3bc-4ae2-834a-52dd6b0d6031" />
+ ‧₊˚𓏵
 
 </p>
 
@@ -82,11 +83,14 @@ B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly s
 
 
 <p align="center">
- ⋆.ೃ࿔<img width="20" height="20" alt="ce9950bc_original" src="https://github.com/user-attachments/assets/5c0e1562-394a-44fd-a122-90e4d497a556" />*:･
+ ⋆.ೃ࿔<img width="20" height="20" alt="j5oyqr" src="https://github.com/user-attachments/assets/bc24d974-2b34-4fc9-b77b-02d7e02af358" />
+*:･
 </p>
 
 <p align="center">  
- <img width="99" height="20" alt="1bd26129" src="https://github.com/user-attachments/assets/8dbc0162-a2e8-4d1f-a040-ff8067561076" />
+<img width="150" height="20" alt="b56f2a33" src="https://github.com/user-attachments/assets/3e6b1e17-5881-4dbf-a028-31dd273e6483" />
+
+
 </p>
 
 
