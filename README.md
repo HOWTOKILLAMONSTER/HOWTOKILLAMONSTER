@@ -76,12 +76,12 @@ B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly s
 
 
 <p align="center">
-⋆.ೃ࿔<img width="20" height="20" alt="ce9950bc_original" src="https://github.com/user-attachments/assets/5c0e1562-394a-44fd-a122-90e4d497a556" />*:･
-    <img width="99" height="20" alt="44be52fc_original" src="https://github.com/user-attachments/assets/8a4dc989-86af-4403-a10c-69b8a228e2d0" />  
+ ⋆.ೃ࿔<img width="20" height="20" alt="ce9950bc_original" src="https://github.com/user-attachments/assets/5c0e1562-394a-44fd-a122-90e4d497a556" />*:･
 </p>
 
-
-
+<p align="center">  
+ <img width="99" height="20" alt="1bd26129" src="https://github.com/user-attachments/assets/8dbc0162-a2e8-4d1f-a040-ff8067561076" />
+</p>
 
 
 <p align="center">
