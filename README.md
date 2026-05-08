@@ -35,6 +35,10 @@
 </p>
 
 <p align="center">
+<img width="730" height="47" alt="Untitled1094-20240909115907" src="https://github.com/user-attachments/assets/c125baed-2896-404c-b1f1-69ee03ddb9ce" />
+</p>
+
+<p align="center">
 Heyy theres a 90% chance that you are here from pony town lol so :
 </p>
 
@@ -55,6 +59,8 @@ B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly s
 </p>
 
 <p align="center">
+<img width="730" height="47" alt="Untitled1094-20240909115900" src="https://github.com/user-attachments/assets/44931b33-0ad2-47a4-9df6-a958e53601f5" />
+</p>
   
 
 <p align="center">
