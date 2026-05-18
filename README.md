@@ -5,7 +5,7 @@
   
 
 <p align="center">
-  🍷
+  🌐
 </p>
 
 <p align="center">
@@ -21,7 +21,7 @@
 
 
 <p align="center">
-<img width="180" height="180" alt="WhatsApp Image 2026-05-08 at 21 32 37" src="https://github.com/user-attachments/assets/3833b5a6-2360-4912-a740-144f326f1eba" />
+<img width="180" height="180" alt="Sticker_PPG_26_Yao_Guang_03" src="https://github.com/user-attachments/assets/a8c99153-1232-4da7-b6a5-261815fa4c2c" />
 
 </p>
 
@@ -75,7 +75,7 @@ B͟Y͟I͟ : I can get really nervous when talking to new people. If I suddenly s
 </p>
 
 <p align="center">
-<img width="180" height="180" alt="WhatsApp Image 2026-05-08 at 21 32 37(1)" src="https://github.com/user-attachments/assets/6c4fb0ae-3c8c-423c-8379-66d91d226405" />
+<img width="180" height="180" alt="Sticker_PPG_26_Yao_Guang_04" src="https://github.com/user-attachments/assets/37830cdb-955d-4c5a-a17e-0760a69cf975" />
 
 </p>
 
