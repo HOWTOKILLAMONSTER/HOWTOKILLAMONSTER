@@ -9,7 +9,6 @@
 </p>
 
 <p align="center">
-  <img width="99" height="20" alt="44be52fc_original" src="https://github.com/user-attachments/assets/8a4dc989-86af-4403-a10c-69b8a228e2d0" />
  .ೀ <img width="20" height="20" alt="c8rdnw" src="https://github.com/user-attachments/assets/1a7cadb9-f3bc-4ae2-834a-52dd6b0d6031" />
  ‧₊˚𓏵
 
